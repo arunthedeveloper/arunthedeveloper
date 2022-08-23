@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **arung6734@gmail.com**
 
-- ⚡ Fun fact **1+1 in python is 11**
+- ⚡ Fun fact **Life is Comedy !Tragedy**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
